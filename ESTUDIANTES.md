@@ -12,3 +12,4 @@ Maria de los Angeles Llerena Hernandez - @MariaLlerenaHernandez
 LAINEZ DEL PEZO FREDDY EZEQUIEL - @fred0i
 - Kerlly Belinda Mite Chalén - GitHub: Kerlly-Mite
 Fabricio Hernandez
+"Angel Orellana"
