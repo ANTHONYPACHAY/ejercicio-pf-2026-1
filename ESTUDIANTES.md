@@ -1,5 +1,4 @@
 "Pepe Pecas"
-Isabela Tigrero Tigrero - @isabela160703-star
 Andres Poveda | @Andreino92
 | Nick Mauricio Rodriguez Borbor | Nick-RB15 |
 "Jose Daniel Gonzalez Cochea", "GIT:" "Use:DanielGc2001"
