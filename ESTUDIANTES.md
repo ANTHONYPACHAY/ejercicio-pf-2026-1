@@ -10,3 +10,4 @@ Justin Tomala - @JustinTG11
 Isabela Tigrero Tigrero - @isabela160703-star
 Maria de los Angeles Llerena Hernandez - @MariaLlerenaHernandez
 LAINEZ DEL PEZO FREDDY EZEQUIEL - @fred0i
+- Kerlly Belinda Mite Chalén - GitHub: Kerlly-Mite
