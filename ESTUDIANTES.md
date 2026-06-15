@@ -5,3 +5,4 @@ Andres Poveda | @Andreino92
 "Emily Gabriela Cruz Narvaez - Emily2811cn"
 Daniel Del Pezo - @DanielDelpezo1999-Sudo
 "ANDY QUIMI" | @quimiandy410-prog
+-- Jean Alejandro - @jean23alejandro
